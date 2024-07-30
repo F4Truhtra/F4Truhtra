@@ -1,1 +1,1 @@
-https://64.media.tumblr.com/e639fdf3658ba5366f824e77033a4afb/fa9ad245940148fd-14/s540x810/f4aec31553b0b1312967b7177251cd4f133d0e98.gif
+![image](https://github.com/user-attachments/assets/a7fb1670-a948-4c7c-8d53-73c5d6962d16)
