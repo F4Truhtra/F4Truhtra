@@ -1,10 +1,1 @@
-- 👋 Hi, ’Im @F4Truhtra
-- 👀 I’m interested in games, animes other
-- 🌱 I’m currently learning program
-- 😄 Pronouns: i am/brazilian
-- ⚡ Fun fact: I'm not sociable
-
-<!---
-F4Truhtra/F4Truhtra is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+https://64.media.tumblr.com/e639fdf3658ba5366f824e77033a4afb/fa9ad245940148fd-14/s540x810/f4aec31553b0b1312967b7177251cd4f133d0e98.gif
